@@ -1,5 +1,5 @@
 ## Oiiee tudo bemm?👋💕
-#### Coisinhas sobre mim😊 
+### Coisinhas sobre mim😊 
 - 💕(✿◠‿◠)eu me chamo Ticiane
 - 🌱 Eu sou do primeiro ano do ensino médio
 - 😄 O meu curso é Desenvolvimento de Sistemas 
