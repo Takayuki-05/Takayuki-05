@@ -1,4 +1,4 @@
-## Oiiee tudo bemm?👋💕
+# Oiiee tudo bemm?👋💕
 ### Coisinhas sobre mim😊 
 - 💕(✿◠‿◠)eu me chamo Ticiane
 - 🌱 Eu sou do primeiro ano do ensino médio
