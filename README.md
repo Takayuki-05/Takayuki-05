@@ -1,6 +1,5 @@
 ## OII tudo bemm? 👋💕
-# Sobre mim
-*Takayuki-05/Takayuki-05* ✨ _special_ ✨  `README.md`. 
+# Sobre mim 
 - 💕(✿◠‿◠)eu me chamo Ticiane
 - 🌱 Eu sou do primeiro ano do ensino médio
 - 😄 O meu curso é Desenvolvimento de Sistemas 
