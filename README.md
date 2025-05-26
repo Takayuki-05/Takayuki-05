@@ -1,4 +1,4 @@
-9## OII tudo bemm? 👋💕
+## OII tudo bemm? 👋💕
 # Sobre mim
 *Takayuki-05/Takayuki-05* ✨ _special_ ✨  `README.md`. 
 - 💕(✿◠‿◠)eu me chamo Ticiane
